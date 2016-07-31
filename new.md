@@ -1,1 +1,0 @@
-que hi ha
